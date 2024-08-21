@@ -8,3 +8,5 @@ Meu nome é Alexandre Psilva
 ### Você pode entrar em contato comigo 📫
 
 00001094765272SP@al.educacao.sp.gov.br
+
+![](https://tenor.com/b1Ao4.gif)
